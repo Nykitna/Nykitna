@@ -1,0 +1,1 @@
+Hello! The name I go by on here is Nykitna! I personally am interested in a multitude of different subjects, once I narrow down a good few to put here, I will. I am currently working with Python a lot and learning how everything works with it.
